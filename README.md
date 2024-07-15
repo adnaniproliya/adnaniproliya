@@ -22,3 +22,4 @@ I'm a final year Computer Engineering student at Government Engineering College,
 
 ### 📫 How to reach me:
 - Connect with me on [LinkedIn](https://linkedin.com/in/mohammedadnan-iproliya)
+- Email me at: [adnaniproliya01@gmail.com](adnaniproliya01@gmail.com)
